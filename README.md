@@ -1,0 +1,2 @@
+# premium-batik-jav-001-javanese-batik-canting-wax-lin
+Tired of losing track of your batik designs, dye schedules, and client orders? The Javanese Batik Canting Wax Line Planner brings the precision of the canting to your Notion workspace, turning creative chaos into a structured workflow.  This template solves the pain of managing multiple batik projects by providing a dedicated system for tracking ea
